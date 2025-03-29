@@ -4,10 +4,10 @@
 ⠀![c58399de-ezgif com-rotate](https://github.com/user-attachments/assets/42e49300-c160-49cb-aebd-1bb62cde1edb)⠀![](https://komarev.com/ghpvc/?username=F2T2EA&label=stars+++&color=ff0080&style=plastic)⠀![c58399de](https://github.com/user-attachments/assets/b824e60d-f1bd-428c-a967-41a4f75d05dc)
 
  <p align="center"> 
-i <strong>${\color{#FF309E}♡}$ most transformers ships⠀<strong>${\color{#FF309E}. . .}$⠀too many to list but featured:⠀dpax <strong>${\color{#FF309E}/}$ megop⠀starop⠀&⠀megastar
+i <strong>${\color{#FF309E}♡}$ most transformers ships⠀<strong>${\color{#FF309E}. . .}$⠀too many to list but featured:⠀dpax <strong>${\color{#FF309E}/}$ megop⠀starop⠀megastar
 
   <p align="center"> 
-<strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀i hate socializing.⠀incest/pedo shippers dni.⠀idgaf about irl.kin.sys debates go inhale pollen up your ass
+<strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀i hate socializing.⠀incest/pedo shippers dni.⠀idgaf about irl.kin.sys debates go inhale pollen
 
 <p align="center">
 <h4 align="center"
