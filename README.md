@@ -7,7 +7,7 @@
 i <strong>${\color{#FF309E}♡}$ most transformers ships⠀<strong>${\color{#FF309E}. . .}$⠀too many to list but featured:⠀dpax <strong>${\color{#FF309E}/}$ megop⠀starop⠀megastar
 
   <p align="center"> 
-<strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀i hate socializing.⠀incest/pedo shippers dni.⠀idgaf about irl.kin.sys debates or discourse go inhale pollen
+<strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀i hate socializing.⠀incest/pedo shippers dni.⠀idgaf about irl.kin.sys debates or any discourse
 
 <p align="center">
 <h4 align="center"
