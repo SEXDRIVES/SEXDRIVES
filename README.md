@@ -10,7 +10,7 @@ i <strong>${\color{#FF309E}♡}$ most transformers ships⠀<strong>${\color{#FF3
 <strong>${\color{#FF309E}+}$ mcu:⠀stucky⠀buckynat⠀stuckynat⠀winterbones
 
   <p align="center"> 
-<strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀c+h welcomed if im alone.⠀i hate socializing.⠀incest/pedo shippers dni.⠀idgaf about irl.kin.sys debates or any discourse
+<strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀c+h welcomed if im alone.⠀i hate socializing.⠀incest/pedo shippers dni.⠀idgaf about irl.kin.sys debates or drama
 
 <p align="center">
 <h4 align="center"
