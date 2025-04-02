@@ -4,11 +4,11 @@
 ![c58399de-ezgif com-rotate](https://github.com/user-attachments/assets/a4bfbab1-d1f7-4a50-af68-3739a8d9f154)⠀![](https://komarev.com/ghpvc/?username=F2T2EA&label=stars+++&color=ff0080&style=plastic)⠀![c58399de](https://github.com/user-attachments/assets/5aabc70a-c08d-40e1-b270-f41f13b701e6)
 
  <p align="center"> 
-i <strong>${\color{#FF309E}♡}$ most transformers ships⠀<strong>${\color{#FF309E}. . .}$⠀too many to list but featured:⠀dpax <strong>${\color{#FF309E}/}$ megop⠀starop⠀kobd⠀megastar
+<strong>${\color{#FF309E}♡}$⠀main fandom ships:⠀dpax <strong>${\color{#FF309E}/}$ megop⠀megastar⠀starop⠀megopstar⠀soundstar⠀knockopt⠀kobd⠀<strong>${\color{#FF309E}[tf]}$⠀stucky⠀buckynat⠀stuckynat⠀winterbones⠀<strong>${\color{#FF309E}[mcu]}$
  
   <p align="center"> 
-<strong>${\color{#FF309E}+}$ mcu:⠀stucky⠀buckynat⠀stuckynat⠀winterbones
-
+<strong>${\color{#FF309E}+}$ others im forgetting
+ 
   <p align="center"> 
 <strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀c+h welcomed if im alone.⠀i hate socializing.⠀incest/pedo shippers dni.⠀idgaf about irl.kin.sys debates or drama
 
