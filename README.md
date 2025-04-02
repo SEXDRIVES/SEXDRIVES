@@ -10,7 +10,7 @@
 <strong>${\color{#FF309E}+}$ others im forgetting
  
   <p align="center"> 
-<strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀c+h welcomed if im alone.⠀i hate socializing.⠀incest/pedo shippers dni.⠀idgaf about irl.kin.sys debates or drama
+<strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀c+h welcomed if im alone.⠀i hate socializing.⠀incest/pedo shippers dni.⠀idgaf about irl.kin.sys debates or drama in general
 
 <p align="center">
 <h4 align="center"
