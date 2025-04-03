@@ -7,7 +7,7 @@
 <strong>${\color{#FF309E}♡}$⠀main fandom ships:⠀dpax <strong>${\color{#FF309E}/}$ megop⠀megastar⠀starop⠀megopstar⠀soundstar⠀knockopt⠀kobd⠀<strong>${\color{#FF309E}[tf]}$⠀stucky⠀buckynat⠀stuckynat⠀winterbones⠀<strong>${\color{#FF309E}[mcu]}$ <strong>${\color{#FF309E}+}$ others im forgetting
  
   <p align="center"> 
-<strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀c+h welcomed if im alone.⠀i hate socializing.⠀incest/pedo shippers dni.⠀idgaf about irl.kin.sys debates or drama in general
+<strong>${\color{#FF309E}byi:}$⠀usually multifandom.⠀c+h welcomed if im alone.⠀i hate socializing.⠀incest/pedo shippers dni.⠀afk all the time, whisper to int⠀idgaf about irl.kin.sys debates or drama in general
 
 <p align="center">
 <h4 align="center"
