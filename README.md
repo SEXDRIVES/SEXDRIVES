@@ -4,7 +4,7 @@
 ![](https://komarev.com/ghpvc/?username=F2T2EA&label=stars+++&color=ff0080&style=plastic)
 
  <p align="center"> 
-<strong>${\color{#FF309E}♡}$⠀https://bundlrs.cc/starzy
+<strong>${\color{#FF309E}♡}$ ⠀https://bundlrs.cc/starzy ⠀<strong>${\color{#FF309E}♡}$
 <p align="center">
 <h4 align="center"
 
