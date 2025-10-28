@@ -10,4 +10,4 @@
 
 ![eFLLr9q](https://github.com/user-attachments/assets/68557db8-e1b1-47ce-8e5c-001e4b19701c)
 
-![Gite8WhW4AEggz3-Photoroom-ezgif com-resize](https://github.com/user-attachments/assets/6748392f-95e6-4add-a4e0-5556331b3bde)
+<img width="500" height="448" alt="Untitled_Artwork8-ezgif com-resize" src="https://github.com/user-attachments/assets/e6aa5d41-9414-407a-aa8c-a141b955ddf8" />
