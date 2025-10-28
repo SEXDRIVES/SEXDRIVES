@@ -4,7 +4,7 @@
 ![](https://komarev.com/ghpvc/?username=F2T2EA&label=stars+++&color=ff0080&style=plastic)
 
  <p align="center"> 
-♡⠀https://overmax.straw.page/ ⠀♡
+♡⠀https://overmax.straw.page/  ♡
 <p align="center">
 <h4 align="center"
 
