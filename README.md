@@ -5,6 +5,8 @@
 
  <p align="center"> 
 ♡⠀https://overmax.straw.page/   ♡
+  
+do not copy⠀*or*⠀inspo my ponies.⠀github is *always* linked.
 <p align="center">
 <h4 align="center"
 
