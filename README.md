@@ -1,12 +1,17 @@
 <p align="center">
 <h4 align="center"
 
-![](https://komarev.com/ghpvc/?username=F2T2EA&label=stars+++&color=ff0080&style=plastic)
+⠀ ![](https://komarev.com/ghpvc/?username=F2T2EA&label=⟡+++&color=fc2d9f&style=plastic)
 
  <p align="center"> 
-♡⠀https://overmax.straw.page/   ♡
-  
-do not copy⠀*or*⠀inspo my ponies.⠀github is *always* linked.
+⟣⠀<a href="https://straw.page/draw">STRAWPAGE</a>⠀⠀♡⠀⠀<a href="https://overlord.atabook.org/">ATABOOK</a>⠀⟢
+
+ <p align="center"> 
+$${\color{#fc2d9f}⌿⠀DO\space\space NOT\space\space COPY\space\space OR\space\space INSPO\space\space MY\space\space PONIES.\space\space⠀GITHUB\space\space IS\space\space ALWAYS\space\space LINKED\space\space ⍀}$$
+
+ <p align="center"> 
+WATCH MY OVERMAX <a href="https://file.garden/Z5p1yw9CojkdWgcN/Dream_5.mov">ANIMATIC!</a>
+
 <p align="center">
 <h4 align="center"
 
