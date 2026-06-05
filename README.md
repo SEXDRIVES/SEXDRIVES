@@ -15,7 +15,7 @@ WATCH MY OVERMAX <a href="https://youtu.be/rByBqb-B0Mw?si=YvSxG7ulHFIgpQEQ">ANIM
 <p align="center">
 <h4 align="center"
 
-![eFLLr9q](https://github.com/user-attachments/assets/68557db8-e1b1-47ce-8e5c-001e4b19701c)
+<img width="500" height="448" alt="583004210-3f89ec55-a3cb-4871-ad3b-d25c6308269e" src="https://github.com/user-attachments/assets/4e6d17a4-dec0-4361-ad0c-f3a52c48b235" />
 
  <p align="center"> 
 <img width="500" height="448" alt="506762974-e6aa5d41-9414-407a-aa8c-a141b955ddf8" src="https://github.com/user-attachments/assets/3f89ec55-a3cb-4871-ad3b-d25c6308269e" />
