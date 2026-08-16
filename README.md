@@ -1,21 +1,22 @@
+ <p align="center"> 
+<img width="80" height="118" alt="tumblr_9e5140f114f493ba68d46e5dd8127e68_80c651f8_1280-ezgif com-rotate" src="https://github.com/user-attachments/assets/df6c2b2f-46a6-438e-9e3a-0e94ec02954a" />⠀⠀<img width="279" height="109" alt="tumblr_4f7da01ddcc65070c836795b3dc9a552_0b657e35_1280" src="https://github.com/user-attachments/assets/65cae07b-6435-4719-bfda-49a1bd45b72c" />⠀⠀<img width="80" height="118" alt="tumblr_9e5140f114f493ba68d46e5dd8127e68_80c651f8_1280-ezgif com-remove-background" src="https://github.com/user-attachments/assets/9578153d-bdb9-49e9-ac21-1eabb31f8467" />
+
 <p align="center">
 <h4 align="center"
 
-⠀ ![](https://komarev.com/ghpvc/?username=F2T2EA&label=⟡+++&color=fc2d9f&style=plastic)
+<img width="20" height="20" alt="379vW2g-ezgif com-remove-background" src="https://github.com/user-attachments/assets/fba8dc79-1a95-4752-bbe0-6cf4333c9468" />⠀![](https://komarev.com/ghpvc/?username=F2T2EA&label=SLUTZ+++&color=fc2d9f&style=plastic)⠀<img width="20" height="20" alt="0B69y6P-ezgif com-remove-background" src="https://github.com/user-attachments/assets/086199e3-85c0-48da-a420-269947fd8df4" />
+
 
  <p align="center"> 
 ⟣⠀<a href="https://overmax.straw.page/">STRAWPAGE</a>⠀⠀♡⠀⠀<a href="https://overlord.atabook.org/">ATABOOK</a>⠀⟢
 
  <p align="center"> 
 $${\color{#fc2d9f}⌿⠀DO\space\space NOT\space\space COPY\space\space OR\space\space INSPO\space\space MY\space\space PONIES.\space\space⠀GITHUB\space\space IS\space\space ALWAYS\space\space LINKED\space\space ⍀}$$
-
- <p align="center"> 
-WATCH MY OVERMAX <a href="https://youtu.be/rByBqb-B0Mw?si=YvSxG7ulHFIgpQEQ">ANIMATIC!</a>
-
+  
 <p align="center">
 <h4 align="center"
 
-<img width="500" height="448" alt="583004210-3f89ec55-a3cb-4871-ad3b-d25c6308269e" src="https://github.com/user-attachments/assets/4e6d17a4-dec0-4361-ad0c-f3a52c48b235" />
-
  <p align="center"> 
-<img width="500" height="448" alt="506762974-e6aa5d41-9414-407a-aa8c-a141b955ddf8" src="https://github.com/user-attachments/assets/3f89ec55-a3cb-4871-ad3b-d25c6308269e" />
+<img width="500" height="436" alt="Untitled_Artwork82-ezgif com-crop" src="https://github.com/user-attachments/assets/dbc3f2c1-78a2-4fec-9493-c666391b0e74" />
+
+
