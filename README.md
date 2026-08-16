@@ -8,13 +8,17 @@
 
 
  <p align="center"> 
-⟣⠀<a href="https://overmax.straw.page/">STRAWPAGE</a>⠀⠀♡⠀⠀<a href="https://overlord.atabook.org/">ATABOOK</a>⠀⟢
+. ♡⠀<a href="https://overmax.straw.page/">STRAWPAGE</a>⠀⠀<img width="20" height="20" alt="5bb82682-ezgif com-remove-background" src="https://github.com/user-attachments/assets/7bc60d04-1a5b-4d7c-82eb-0c353da6115b" />⠀⠀<a href="https://overlord.atabook.org/">ATABOOK</a>⠀♡ .
 
  <p align="center"> 
-$${\color{#fc2d9f}⌿⠀DO\space\space NOT\space\space COPY\space\space OR\space\space INSPO\space\space MY\space\space PONIES.\space\space⠀GITHUB\space\space IS\space\space ALWAYS\space\space LINKED\space\space ⍀}$$
+$${\color{#fc2d9f}⌿⠀DO\space\space NOT\space\space COPY\space\space OR\space\space INSPO\space\space MY\space\space PONIES\space\space⠀GITHUB\space\space IS\space\space ALWAYS\space\space LINKED\space\space ⍀}$$
   
 <p align="center">
 <h4 align="center"
+
+ <p align="center">
+<img width="150" height="20" alt="cyberbully" src="https://github.com/user-attachments/assets/faf97dbe-04af-444a-97a2-999566c372af" />⠀<img width="150" height="20" alt="blinkiesCafe-G7" src="https://github.com/user-attachments/assets/a5d2a4b8-526e-4e74-aa29-82932d048e12" />⠀<img width="150" height="20" alt="blinkiesCafe-MN" src="https://github.com/user-attachments/assets/dabbe210-f302-4277-a74b-0918f92abb3a" />
+
 
  <p align="center"> 
 <img width="500" height="436" alt="Untitled_Artwork82-ezgif com-crop" src="https://github.com/user-attachments/assets/dbc3f2c1-78a2-4fec-9493-c666391b0e74" />
