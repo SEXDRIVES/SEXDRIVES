@@ -19,9 +19,7 @@ $${\color{#fc2d9f}⌿⠀DO\space\space NOT\space\space COPY\space\space OR\space
 <img width="150" height="20" alt="cyberbully" src="https://github.com/user-attachments/assets/faf97dbe-04af-444a-97a2-999566c372af" />⠀<img width="150" height="20" alt="blinkiesCafe-G7" src="https://github.com/user-attachments/assets/a5d2a4b8-526e-4e74-aa29-82932d048e12" />⠀<img width="150" height="20" alt="blinkiesCafe-MN" src="https://github.com/user-attachments/assets/dabbe210-f302-4277-a74b-0918f92abb3a" />
 
  <p align="center"> 
-<img width="20" height="20" alt="sRhIyyS-ezgif com-remove-background" src="https://github.com/user-attachments/assets/83a759f1-351a-4ee8-b063-73709f8ae860" /> $${\color{#fc2d9f}⌿⠀ART\space\space CREDIT\space\space TO\space\space F0RSHIII\space\space @\space\space TWITTER\space\space ⍀}$$ <img width="20" height="20" alt="JS91pVU-ezgif com-remove-background" src="https://github.com/user-attachments/assets/979a6e17-f617-495c-8e42-241bbe785f7c" />
+<img width="20" height="20" alt="sRhIyyS-ezgif com-remove-background" src="https://github.com/user-attachments/assets/83a759f1-351a-4ee8-b063-73709f8ae860" /> $${\color{#50f2e7}⌿⠀ART\space\space CREDIT\space\space TO\space\space F0RSHIII\space\space @\space\space TWITTER\space\space ⍀}$$ <img width="20" height="20" alt="JS91pVU-ezgif com-remove-background" src="https://github.com/user-attachments/assets/979a6e17-f617-495c-8e42-241bbe785f7c" />
 
  <p align="center"> 
-<img width="500" height="436" alt="Untitled_Artwork82-ezgif com-crop" src="https://github.com/user-attachments/assets/dbc3f2c1-78a2-4fec-9493-c666391b0e74" />
-
-
+<img width="500" height="451" alt="Untitled_Artwork83-ezgif com-resize (1)" src="https://github.com/user-attachments/assets/5d70ad6c-c4de-44db-b4d3-ba015e194c47" />
