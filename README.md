@@ -8,7 +8,11 @@
 <br><br>
 
 <p align="center">
- 
+<h4 align="center"
+  
+  <img width="20" height="20" alt="379vW2g-ezgif com-remove-background" src="https://github.com/user-attachments/assets/fba8dc79-1a95-4752-bbe0-6cf4333c9468" />⠀![](https://komarev.com/ghpvc/?username=F2T2EA&label=SLUTZ+++&color=fc2d9f&style=flat-square)⠀<img width="20" height="20" alt="0B69y6P-ezgif com-remove-background" src="https://github.com/user-attachments/assets/086199e3-85c0-48da-a420-269947fd8df4" />
+
+<p align="center">
  $\Huge\color{#f7f6e6}{\mathbf{\textsf{، ★ ⠀BLOODSPORT ⠀† ⠀KMFDM ⠀⨯}}}$<br>
   
 <p align="right">
