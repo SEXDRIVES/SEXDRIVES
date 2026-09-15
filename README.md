@@ -31,13 +31,13 @@ minors do not interact.⠀i do not enjoy socializing,⠀whispers are sparse.⠀i
 ‎<br>
 
   $\color{#b814e0}{\textsf{(⌖) ⠀𝐄𝐍𝐓𝐄𝐑⠀𝐓𝐇𝐄⠀𝐑𝐈𝐍𝐆‎}}$<br>‎
-overlord  &  starscream if they were a 23 yr old scene─girl─thing.⠀i am very insane over fortress maximus,⠀heed my warnings...⠀´ཀ`<br>
-
-<br>
+overlord  &  starscream if they were a 23 yr old scene─girl─thing.⠀i am very insane over fortress maximus,⠀heed my warnings...⠀´ཀ`
 
 <p align="center">
-<img width="230" height="94" alt="Screenshot2026-09-07013934-ezgif com-resize" src="https://github.com/user-attachments/assets/d7c63ff7-9ee8-4a20-a69f-366ce6d34b5a" /> <img width="230" height="94" alt="Screenshot2026-09-07015103-ezgif com-resize (1)" src="https://github.com/user-attachments/assets/7178b4d4-a2e4-4fdb-8744-f326e4b63c7f" />
+<h4 align="center"
+  
+[![STRAWPAGE](https://riotdogs.neocities.org/Screenshot2026-09-07013934-ezgif.com-resize.png)](https://overmax.straw.page/)⠀⠀[![ATABOOK](https://riotdogs.neocities.org/Screenshot2026-09-07015103-ezgif.com-resize%20(1).png)](https://overlord.atabook.org/)<br>
 
-<br><br>
+<br>
 <p align="center">
 <img src="https://riotdogs.neocities.org/ezgif.com-resize%20(3).webp"/>
