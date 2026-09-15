@@ -22,7 +22,7 @@ $\color{#ffff66}{\textsf{HUMAN⠀ANIMAL⠀IS⠀KING!}}$<br>
 
 <br>
 
-$\color{#9304e0}{\textsf{𝐀𝐋𝐋⠀𝐀𝐆𝐀𝐈𝐍𝐒𝐓⠀𝐀𝐋𝐋 ⠀ᡕᠵデᡁ᠊╾}}$<br>‎
+  $\color{#9304e0}{\textsf{𝐀𝐋𝐋⠀𝐀𝐆𝐀𝐈𝐍𝐒𝐓⠀𝐀𝐋𝐋 ⠀ᡕᠵデᡁ᠊╾}}$<br>‎
 minors do not interact.⠀i do not enjoy socializing,⠀whispers are sparse.⠀i am always AFK,⠀full information located on [listography!](https://listography.com/victimized?m=0580652416) <br>
 
 
@@ -30,7 +30,7 @@ minors do not interact.⠀i do not enjoy socializing,⠀whispers are sparse.⠀i
 ‎ ‎ ‎ ‎
 ‎ ‎ ‎ <br>
 
-$\color{#b814e0}{\textsf{(⌖) ⠀𝐄𝐍𝐓𝐄𝐑⠀𝐓𝐇𝐄⠀𝐑𝐈𝐍𝐆‎}}$<br>‎
+  $\color{#b814e0}{\textsf{(⌖) ⠀𝐄𝐍𝐓𝐄𝐑⠀𝐓𝐇𝐄⠀𝐑𝐈𝐍𝐆‎}}$<br>‎
 overlord  &  starscream if they were a 23 yr old scene─girl─thing.⠀i am very insane over fortress maximus,⠀heed my warnings...⠀´ཀ`
 
 <br><br><br>
