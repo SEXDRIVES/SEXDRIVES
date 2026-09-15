@@ -36,7 +36,7 @@ overlord  &  starscream if they were a 23 yr old scene─girl─thing.⠀i a
 <p align="center">
 <h4 align="center"
   
-[![STRAWPAGE](https://riotdogs.neocities.org/Screenshot2026-09-07013934-ezgif.com-resize.png)](https://overmax.straw.page/)⠀⠀[![ATABOOK](https://riotdogs.neocities.org/Screenshot2026-09-07015103-ezgif.com-resize%20(1).png)](https://overlord.atabook.org/)<br>
+[![STRAWPAGE](https://riotdogs.neocities.org/Screenshot2026-09-07013934-ezgif.com-resize.png)](https://overmax.straw.page/)⠀⟡⠀[![ATABOOK](https://riotdogs.neocities.org/Screenshot2026-09-07015103-ezgif.com-resize%20(1).png)](https://overlord.atabook.org/)<br>
 
 <br>
 <p align="center">
