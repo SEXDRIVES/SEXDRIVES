@@ -10,7 +10,7 @@
 <p align="center">
 <h4 align="center"
   
-  <img width="20" height="20" alt="379vW2g-ezgif com-remove-background" src="https://riotdogs.neocities.org/sRhIyyS.gif" />⠀![](https://komarev.com/ghpvc/?username=F2T2EA&label=SLUTZ+++&color=fc2d9f&style=flat-square)⠀<img width="20" height="20" alt="0B69y6P-ezgif com-remove-background" src="https://i.imgur.com/v9GMCSe.gif" />
+  <img width="20" height="20" alt="379vW2g-ezgif com-remove-background" src="https://riotdogs.neocities.org/sRhIyyS.gif" />⠀![](https://komarev.com/ghpvc/?username=F2T2EA&label=SLUTZ+++&color=fc2d9f&style=flat-square)⠀<img width="20" height="20" alt="0B69y6P-ezgif com-remove-background" src="https://i.imgur.com/si5MVx7.gif" />
 
 <p align="center">
  $\Huge\color{#f7f6e6}{\mathbf{\textsf{، ★ ⠀BLOODSPORT ⠀† ⠀KMFDM ⠀⨯}}}$<br>
