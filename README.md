@@ -31,7 +31,7 @@ minors do not interact.⠀i do not enjoy socializing,⠀whispers are sparse.⠀i
 ‎<br>
 
   $\color{#b814e0}{\textsf{(⌖) ⠀𝐄𝐍𝐓𝐄𝐑⠀𝐓𝐇𝐄⠀𝐑𝐈𝐍𝐆‎}}$<br>‎
-overlord  &  starscream if they were a 23 yr old scene─girl─thing.⠀i am very insane over fortress maximus,⠀heed my warnings...⠀´ཀ`
+overlord  &  starscream if they were a 23 yr old scene─girl─thing.⠀i am very insane over fortress maximus,⠀heed my warnings...⠀$\color{#00ebdf}{\textsf{´ཀ`}}$<br>‎
 
 <br>
 <p align="center">
