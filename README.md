@@ -17,8 +17,8 @@
   
 <p align="right">
 $\color{#ff00bb}{\textsf{BLOODSPORT⠀IS⠀KING!}}$<br>‎
-$\small\color{#00ebdf}{\textsf{﹒ MATE⠀─⠀DECIMATE,}}$<br>
-$\color{#00ebdf}{\textsf{HUMAN⠀ANIMAL⠀IS⠀KING!}}$<br>
+$\small\color{#0dffe7}{\textsf{﹒ MATE⠀─⠀DECIMATE,}}$<br>
+$\color{#0dffe7}{\textsf{HUMAN⠀ANIMAL⠀IS⠀KING!}}$<br>
 
 <br>
 
