@@ -3,7 +3,7 @@
 </p>
 
 <br>
-<img align="left" src="https://riotdogs.neocities.org/Untitled_Artwork91-ezgif.com-resize%20(1).png" width="500">
+<img align="left" src="https://riotdogs.neocities.org/IMG_5706-ezgif.com-resize.png" width="500">
 
 <br><br>
 
