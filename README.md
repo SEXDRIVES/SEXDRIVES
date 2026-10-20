@@ -40,4 +40,4 @@ overlord  &  starscream if they were a 23 yr old scene─girl─thing.⠀i a
 
 <br>
 <p align="center">
-<img src="https://riotdogs.neocities.org/ezgif.com-resize%20(3).webp"/>
+<img src="https://biscuit.crd.co/assets/images/gallery88/49992d13.png?v=61632bd6"/>
